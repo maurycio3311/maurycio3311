@@ -1,4 +1,4 @@
--Me chamo Maurício
+## Me chamo Maurício
 
 
 -Tenho 15 anos👽
@@ -9,7 +9,8 @@
 
 -Sou lutador de Jiu-jitsu🥋
 
-ENTRAR EM CONTATO COMIGO
+## Entrar em contato comigo
 
 mauricio.tobias@escola.pr.gov.br
+
 ![](https://media1.tenor.com/m/6dOf85BKov0AAAAC/haikyuu-anime.gif)
