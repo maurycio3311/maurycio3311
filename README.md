@@ -13,4 +13,4 @@
 
 mauricio.tobias@escola.pr.gov.br
 
-![](https://media1.tenor.com/m/6dOf85BKov0AAAAC/haikyuu-anime.gif)
+![](https://tenor.com/b2hfU.gif)
