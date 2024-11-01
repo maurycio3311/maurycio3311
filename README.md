@@ -13,4 +13,4 @@
 
 mauricio.tobias@escola.pr.gov.br
 
-![](https://tenor.com/b2hfU.gif)
+![](https://tenor.com/pt-BR/view/volleyball-dance-gif-27673312)
