@@ -11,7 +11,7 @@
 
 -Gosto de programar💻🖱️
 
-## Entrar em contato comigo
+## Entrar em contato comigo📞
 
 mauricio.tobias@escola.pr.gov.br
 
