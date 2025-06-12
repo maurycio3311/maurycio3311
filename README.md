@@ -15,4 +15,4 @@
 
 mauricio.tobias@escola.pr.gov.br
 
-![](https://tenor.com/huKXifqLXIa.gif)
+![](https://tenor.com/pt-BR/view/hmmm-thinking-batman-gif-6153870554148391864)
